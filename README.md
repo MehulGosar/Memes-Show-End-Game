@@ -1,0 +1,1 @@
+Answer some trivial questions about Memes and Shows to score highest. Make sure to send screenshot to Mehul as as toadd your name to top scorers. 
